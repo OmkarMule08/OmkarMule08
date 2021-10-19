@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OmkarMule08
 - 👀 I’m interested in programming and web developing
-- 🌱 I’m currently learning various language and programming
+- 🌱 I’m currently learning various programing languages .
 - 💞️
 - 📫 omule46@gmail.com / 9637803003
 
